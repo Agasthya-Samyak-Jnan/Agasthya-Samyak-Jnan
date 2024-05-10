@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Agasthya-Samyak-Jnan
-- 👀 I’m interested in ...Programming and Gaming
-- 🌱 I’m currently learning ...Software Engineering
 - 📫 How to reach me ...agasthyasamyakjnan5577@gmail.com 
 
 
