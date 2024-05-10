@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Agasthya Samyak Jnan
+- 👋 Hi, I’m Agasthya Samyak Jnan
 - 📫 How to reach me = agasthyasamyakjnan5577@gmail.com 
 
 
