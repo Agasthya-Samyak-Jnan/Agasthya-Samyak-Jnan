@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Agasthya-Samyak-Jnan
-- 📫 How to reach me ...agasthyasamyakjnan5577@gmail.com 
+- 👋 Hi, I’m @Agasthya Samyak Jnan
+- 📫 How to reach me = agasthyasamyakjnan5577@gmail.com 
 
 
 <!---
